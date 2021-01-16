@@ -1,4 +1,4 @@
-# Bustabit Bustabit Bot Scipt 2021 
+# Bustabit Bustabit Bot Script 2021 
 # DOWNLOAD Moved To: https://bit.ly/BustaBots2021
 # Use Coupon Code 'gitcrew' for 25% off - HURRY, ENDS THIS MONTH!
 
