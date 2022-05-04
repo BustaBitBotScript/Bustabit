@@ -8,3 +8,6 @@ Only a SMALL NUMBER OF DOWNLOADS will be permitted until it is permanently remov
 
 ## 🛑🛑 Special Discount Ends VERY SOON: 🛑🛑
 Use promo code 'GITCREW' to unlock discount!
+
+----- 
+> https://bustabitbotscript.blogspot.com
