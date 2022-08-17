@@ -13,6 +13,6 @@ Use promo code 'GITCREW' to unlock discount!
 > https://bustabitbotscript.blogspot.com
 
 _Players at Bustabit are also given the option to bet automatically via scripts.
-Scripts to run autonomously for the popular bitcoin gambling site bustabit.com0x  In this script you can set the number of games that you want with one of the key features of bustabit's new scripting system is that scripts can specify a user interface for the user to fill out before clicking "Start Script".
+Scripts to run autonomously for the popular bitcoin gambling site bustabit.com0x  In this script you can set the number of games that you want with one of the key features of bustabit's new scripting system is that scripts can specify a user interface for the user to fill out before clicking "Start Script"._
 
- Players at Bustabit are given the option to bet automatically via scripts, use it!_
+ _Players at Bustabit are given the option to bet automatically via scripts, use it!_
