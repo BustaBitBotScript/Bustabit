@@ -2,7 +2,7 @@
 
 
 ## 🛑🛑 Special Discount Ends VERY SOON: 🛑🛑
-Use promo code 'GITCREW' to unlock discount!
+## Use promo code 'GITCREW' to unlock discount!
 # https://bit.ly/BustabitScripsTools
 
 
