@@ -1,4 +1,4 @@
-# Bustabit Predictor Script Bot 2023
+# Bustabit Predictor Script Bot 2023 *VERIFIED WORKING*
 
 
 ## 🛑🛑 Special Discount Ends VERY SOON: 🛑🛑
