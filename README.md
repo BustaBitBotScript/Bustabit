@@ -1,8 +1,8 @@
 # Bustabit Predictor Script Bot 2023 *VERIFIED WORKING*
+![Bustabit Bot Predictor Script](https://github.com/BustaBitBotScript/Bustabit/assets/75165779/c5ec1ee5-f093-499a-83e9-f69ceb54d1c7)
 
 
-## 🛑🛑 Special Discount Ends VERY SOON: 🛑🛑
-## Use promo code 'GITCREW' to unlock discount!
+## 🛑🛑 Special Discount Ends VERY SOON: 🛑🛑 Use promo code 'GITCREW' to unlock discount!
 # https://bit.ly/BustabitScripsTools
 
 
